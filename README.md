@@ -1,5 +1,3 @@
-# My-work
-Nazhya
 
 	
 					
